@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on multipy
 - 📫 How to reach me: email - m1cro_cat@outlook.com
 - 😄 Pronouns: cat
-- ⚡ Fun fact: im cat
+- ⚡ Fun fact: im cat, m1cro-cat - my old account!
 
 <!---
 m1crocat/m1crocat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
