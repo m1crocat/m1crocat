@@ -2,7 +2,7 @@
 - 👀 I’m interested in Python, photo, HTML + CSS, 
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on multipy
-- 📫 How to reach me: email - m1cro_cat@outlook.com
+- 📫 How to reach me: tg - @m1cro_cat
 - 😄 Pronouns: cat
 - ⚡ Fun fact: im cat, m1cro-cat - my old account!
 
